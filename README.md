@@ -8,5 +8,5 @@ My name is Esther. I am a data analyst with a passion for transforming raw data 
 . Collaborate with experienced professionals to further develop my skills
 . Apply my analytical mindset to solve challenging business problems
 
-Connect with LinkedIn:
+Connect with me on LinkedIn:
 https://www.linkedin.com/in/esther-ajayi-984a7a190/
