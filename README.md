@@ -5,7 +5,9 @@ My name is Esther. I am a data analyst with a passion for transforming raw data 
 🎯 Seeking opportunities to:
 
 . Contribute to data-driven decision making in a dynamic organization
+
 . Collaborate with experienced professionals to further develop my skills
+
 . Apply my analytical mindset to solve challenging business problems
 
 Connect with me on LinkedIn:
